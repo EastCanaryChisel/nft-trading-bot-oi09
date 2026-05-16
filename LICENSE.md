@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with ultimate NFT Scanner for nft trading bot | mint-detection & flip-strategies. Featuring mint-detection and flip-strategies, it's the best
 
 
 
